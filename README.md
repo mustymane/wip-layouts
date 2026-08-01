@@ -2,5 +2,7 @@
 
 radford layout
 ---
-
-![](https://komarev.com/ghpvc/?username=mustymane&label=popcorn&color=yellow&style=for-the-badge)
+<p align="center"> 
+────୨ৎ────
+  
+  ![](https://komarev.com/ghpvc/?username=mustymane&label=popcorn&color=yellow&style=for-the-badge)
