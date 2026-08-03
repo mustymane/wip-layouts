@@ -21,7 +21,7 @@ lost silver layout wip
   $${\color{#08628B}⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝}$$
   <div align="center"> 
     
-![](https://komarev.com/ghpvc/?username=mustymane&color=045F89&label=Unown&color=045F89&style=for-the-badge) <div align="center"> 
+![](https://komarev.com/ghpvc/?username=mustymane&color=045F89&label=Unown&color=045F89&style=for-the-badge) <div align="center"> <div align="center"> 
 
 
 </p>
@@ -38,10 +38,15 @@ lost silver layout wip
 
 <img width="341" height="127" alt="Untitled22_20260721003510 - Copy" src="https://github.com/user-attachments/assets/6c0e953a-7577-47f4-9f74-5921194a9dcb" />
 
-![](https://files.catbox.moe/1x2yno.gif) ![](https://files.catbox.moe/7fxxhw.gif) ![](https://i.postimg.cc/xCdZzM3T/undead.gif) ![](https://files.catbox.moe/3w3aho.gif)
+![](https://files.catbox.moe/1x2yno.gif) ![](https://files.catbox.moe/7fxxhw.gif) ![](https://i.postimg.cc/xCdZzM3T/undead.gif) ![](https://files.catbox.moe/3w3aho.gif)<div align="center"> 
 
+$${\color{#520D1A} ✦' ' With \space \color{#571C5E} Unowns \color{#520D1A}\space as \space his \space puppeteer, his \space groans \space are \space pitiful\space sparks \space of  \space hope \space that \space \color{#571C5A}Gold \color{#520D1A}\space  is \space possibly \space still \space alive.' '}$$
+ 
+$${\color{#3A637A}⸝⸝꩜⠀ ⌞gold/ethan ノノ fictionkin, autistic ノ adhd ノ schizo⌝}$$
+
+$${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '⠀ ⠀ ⠀(,,x﹏x,,) ⠀ ⠀⸝⸝⸝}$$
 ⠀⠀⠀⠀⠀
-
+---
 ![](https://64.media.tumblr.com/91c7f2624584e7ba8e5cf28b0d33c8be/ace99ee369f4f3e5-32/s2048x3072/690222bd03133f365471be7c8c599488c2c0d7a4.pnj)
 
 ![](https://64.media.tumblr.com/119411c58d7985d34945c3a608731c00/9dada3c6e236b78c-e9/s100x200/fb83304bd77412a94de3bcc39c6c9a12a92d5672.gifv) ![](https://64.media.tumblr.com/be5f06500641bc214af70d3155920bbb/9dada3c6e236b78c-ec/s100x200/915ce0db745ee7b653d19dec3f14d5760080c2ee.gifv)  <div align="center"> 
