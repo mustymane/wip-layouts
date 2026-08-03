@@ -18,7 +18,7 @@ lost silver layout wip
 <p align="center"> 
   <img width="2048" height="406" alt="image" src="https://github.com/user-attachments/assets/404e2e8b-6365-4d54-8b0f-b94e4e58f896" />
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&label=Unown&color=20353A&style=for-the-badge)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&label=Unown&color=20353A&style=for-the-badge)
 
 </p>
 <p align="center"> 
