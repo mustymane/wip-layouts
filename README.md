@@ -33,3 +33,11 @@ lost silver layout wip
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&weight=500&size=35&duration=4998&pause=984&color=BEC4C6&center=true&random=true&width=445&height=66&lines=I+AM..+DEAD;.+.+.)](https://git.io/typing-svg) <div align="center"> 
 
 ![](https://64.media.tumblr.com/d462fe70fd9ce8a3e331cdd8bad73ba1/ace99ee369f4f3e5-68/s2048x3072/da61253b1bceca3a025efa8454bf33fc06593cef.gifv)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+<img width="341" height="127" alt="Untitled22_20260721003510 - Copy" src="https://github.com/user-attachments/assets/6c0e953a-7577-47f4-9f74-5921194a9dcb" />
+
+⠀⠀⠀⠀⠀
+
+![](https://64.media.tumblr.com/91c7f2624584e7ba8e5cf28b0d33c8be/ace99ee369f4f3e5-32/s2048x3072/690222bd03133f365471be7c8c599488c2c0d7a4.pnj)
