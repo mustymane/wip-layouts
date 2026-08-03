@@ -50,3 +50,6 @@ $${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '
 ![](https://64.media.tumblr.com/91c7f2624584e7ba8e5cf28b0d33c8be/ace99ee369f4f3e5-32/s2048x3072/690222bd03133f365471be7c8c599488c2c0d7a4.pnj)
 
 ![](https://64.media.tumblr.com/119411c58d7985d34945c3a608731c00/9dada3c6e236b78c-e9/s100x200/fb83304bd77412a94de3bcc39c6c9a12a92d5672.gifv) ![](https://64.media.tumblr.com/be5f06500641bc214af70d3155920bbb/9dada3c6e236b78c-ec/s100x200/915ce0db745ee7b653d19dec3f14d5760080c2ee.gifv)  <div align="center"> 
+
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=true"> <div align="center"> 
