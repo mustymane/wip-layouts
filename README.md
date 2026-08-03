@@ -17,7 +17,8 @@ lost silver layout wip
 ![](https://64.media.tumblr.com/d5a6b0359cda290590e8748bfeb537cd/ace99ee369f4f3e5-29/s2048x3072/7e012ff3b974818378746934e7b36fd6a2716fa0.pnj)
 <p align="center"> 
   <img width="2048" height="406" alt="image" src="https://github.com/user-attachments/assets/404e2e8b-6365-4d54-8b0f-b94e4e58f896" />
- ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
+  
+  $${\color{#08628B}⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝}$$
   <div align="center"> 
     
 ![](https://komarev.com/ghpvc/?username=mustymane&color=045F89&label=Unown&color=045F89&style=for-the-badge) <div align="center"> 
