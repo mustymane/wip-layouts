@@ -8,3 +8,5 @@ lost silver layout 3?? ot 4 idk
   ![](https://64.media.tumblr.com/594f7b0d141c7514001ee463623c26ac/655eadbab1ded21f-8b/s400x600/3831cddacc99c76d6176e17a3090e085a16ee1c3.gifv) 
 <div align="center"> 
 
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=pixelify+sans&size=50&pause=1000&color=5C1626&center=true&vCenter=true&width=1100&height=100&lines=I'M+DEAD.;.+.+.;NO+MORE." alt="Typing SVG" /></a>
