@@ -13,13 +13,17 @@ lost silver layout 3?? ot 4 idk
 
   ![](https://64.media.tumblr.com/594f7b0d141c7514001ee463623c26ac/655eadbab1ded21f-8b/s400x600/3831cddacc99c76d6176e17a3090e085a16ee1c3.gifv) 
 
+[strawpage - ](https://coldgold.straw.page)[atabook - ](https://mustymane.atabook.org/) [full kinlist](https://pronouns.cc/@mustymane) 
+
+![](https://64.media.tumblr.com/8db35dfbd0dd6ca36871586e24348e77/e01413f6e4775148-fd/s250x400/dffdee09d1488aff1682dc999d23dd12836391bd.pnj) <div align="center"> 
+
+$${\color{#56131E}⸝⸝⠀ ⌞gold/ethan ノノ fictionkinノadhdノschizo}$$
+
 <div align="center"> 
 
 
 <div align="center"> 
 
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=pixelify+sans&size=50&pause=1000&color=5C1626&center=true&vCenter=true&width=1100&height=100&lines=I'M+DEAD.;.+.+.;NO+MORE." alt="Typing SVG" /></a>
 
 
 
@@ -29,4 +33,6 @@ lost silver layout 3?? ot 4 idk
 
 <div align="center"> 
 
-![](https://64.media.tumblr.com/8db35dfbd0dd6ca36871586e24348e77/e01413f6e4775148-fd/s250x400/dffdee09d1488aff1682dc999d23dd12836391bd.pnj) <div align="center"> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=pixelify+sans&size=50&pause=1000&color=5C1626&center=true&vCenter=true&width=1100&height=100&lines=I'M+DEAD.;.+.+.;NO+MORE." alt="Typing SVG" /></a>
+
+---
