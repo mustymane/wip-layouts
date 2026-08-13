@@ -24,3 +24,5 @@ lost silver layout 3?? ot 4 idk
 
 
 ![](https://64.media.tumblr.com/83158ae7707a06003d653381f7f7c205/9f40624fb93ae11e-7b/s2048x3072/f707ce30bbb6705a54474cbbb5722d09d8447bd3.pnj)
+
+![LEAVE HURRY](https://64.media.tumblr.com/d554f65f88c4710517bf75dd7449b4fa/e289ed27c25298ec-ed/s250x400/012d7fe017230902b95efc3078acff3635515b1d.webp)
